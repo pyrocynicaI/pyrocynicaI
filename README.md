@@ -11,10 +11,10 @@
 winnie - any prns - 20
 <br>
 i like games and any joys in life 
-<br> plz be nice and dont barge into convos like youre tipping your fedora
-
+<br> 
+here's my impression of a ponytown rando:
 <br>
-I NEVER PERMAHIDE except 5 people because they all have me in thier head like a parasite of sorts
+*tips fedora* "i will make this topic about myself and call you insults because i lack manners"
 <img src="https://github.com/user-attachments/assets/62fec11d-cf79-4b6d-b36e-d4f2458f4b35"
 
 </p>
