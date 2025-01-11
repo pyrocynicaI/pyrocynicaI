@@ -8,7 +8,7 @@
 <img src="https://github.com/user-attachments/assets/f2b3d496-0199-457c-b7ff-b21d2d851289">
 
 <br>
-winnie - any prns - 20
+any prns - 20
 <br>
 i like games and any joys in life 
 <br> 
